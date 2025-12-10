@@ -1,3 +1,3 @@
 # Andrzejki
-W tym roku Andrzejki wypadają w nocy z piątku na niedzielę.
+W tym roku Andrzejki wypadają w nocy z soboty na niedzielę.
 
